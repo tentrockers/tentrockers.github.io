@@ -86,8 +86,3 @@ exclude:
   - CNAME
 feed:
   posts_limit: 50
-
-feed:
-  categories:
-    - news
-    - movies

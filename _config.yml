@@ -85,4 +85,4 @@ exclude:
   - README.md
   - CNAME
 feed:
-  posts_limit: 100
+  posts_limit: 1000

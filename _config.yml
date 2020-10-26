@@ -85,4 +85,9 @@ exclude:
   - README.md
   - CNAME
 feed:
-  posts_limit: 50
+  posts_limit: 10050
+
+feed:
+  categories:
+    - news
+    - movies

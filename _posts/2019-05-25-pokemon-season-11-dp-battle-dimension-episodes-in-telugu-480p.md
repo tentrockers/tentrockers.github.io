@@ -1,0 +1,40 @@
+---
+title: "Pokemon Season 11 DP Battle Dimension Episodes in Telugu [480p]"
+date: "2019-05-25"
+---
+
+INFO:
+
+NAME: POKEMON SEASON 11 DIAMOND AND PEARL : BATTLE DIMENSION
+
+YEAR: 2007
+
+LANGUAGE: TELUGU
+
+QUALITY: 480p
+
+SIZE: 120 – 150MB
+
+ENCODED BY: TOONWORLDTAMIL
+
+### FOR TELUGU FOLLOWERS, THIS SITE FAMOUS FOR TAMIL TOONS SO THERE IS NOT MANY TELUGU FOLLOWERS SO CAN YOU GUYS PLEASE SHARE THIS POST TO TELUGU FOLLOWERS THAT WILL MAKE ME TO UPLOAD MORE EPISODES
+
+## POKEMON – S11 – EP 3 – THROWING A TRACK SWITCH! – TELUGU FIRST ON NET
+
+[![](https://1.bp.blogspot.com/-EkR20kgXW_E/XOlNzptPCGI/AAAAAAAABW8/wC2egs7-YgQFANBq5V2k1wRrnZ74WipCACLcBGAs/s320/DP055_1.jpg)](https://1.bp.blogspot.com/-EkR20kgXW_E/XOlNzptPCGI/AAAAAAAABW8/wC2egs7-YgQFANBq5V2k1wRrnZ74WipCACLcBGAs/s1600/DP055_1.jpg)
+
+GOOGLE DRIVE SERVER – 480p – 150MB
+
+## POKEMON – S11 – EP 2 – ONCE THERE WERE GREENFIELDS – TELUGU FIRST ON NET
+
+[![](https://1.bp.blogspot.com/-F3wYNg-f8Bk/XOPK7_pjYbI/AAAAAAAABWY/Kz08qyU-LiMqe1jwoNfpopsiIXqghihzgCLcBGAs/s320/season11_ep02_ss01.jpg)](https://1.bp.blogspot.com/-F3wYNg-f8Bk/XOPK7_pjYbI/AAAAAAAABWY/Kz08qyU-LiMqe1jwoNfpopsiIXqghihzgCLcBGAs/s1600/season11_ep02_ss01.jpg)
+
+GOOGLE DRIVE SERVER – 480p – 150MB
+
+### POKEMON – S11 – EP 1 – TEARS FOR FEARS! – TELUGU FIRST ON NET
+
+[![](https://1.bp.blogspot.com/-7BHaiL_1_vY/XOF1rdbJUNI/AAAAAAAABVQ/9xBUU5H3fbwZXfhHL45u0aKqo89XjsorQCLcBGAs/s320/season11_ep01_ss04.jpg)](https://1.bp.blogspot.com/-7BHaiL_1_vY/XOF1rdbJUNI/AAAAAAAABVQ/9xBUU5H3fbwZXfhHL45u0aKqo89XjsorQCLcBGAs/s1600/season11_ep01_ss04.jpg)
+
+GOOGLE DRIVE SERVER – 480p – 150MB
+
+This article was Originally posted by [Tentrockers](https://tentrockers.blogspot.com/)

@@ -1,0 +1,68 @@
+---
+title: "Download Mard Ko Dard Nahin Hota (2018) Hindi Movie Bluray || 720p [1.3GB] || 1080p [3.8GB]"
+date: "2020-05-12"
+---
+
+Download **Mard Ko Dard Nahin Hota** (2018) Hindi Movie in [1080p](https://1moviesflix.com/1080p-movies/), **[720p,](https://1moviesflix.com/720p-movies/)**This is a Bollywood Hindi movie and available in 720p & 1080p quality. This is a  **Action, Comedy** based movie. This movie is released in **2018** in the Hindi language**.** Click on the Download button below to download this movie. This is the Latest **Bluray Print** with **Hindi audio**.
+
+**TheMoviesFlix.in** is one of the Best Websites/Platform For Bollywood and Indian Movies and Series. We also provide south movies like Tamil, Telugu and Malayalam movies, and also Bengali, Punjabi, and other local movies. We Provide Direct Fast Google Drive Download Links For Secure Downloading. Just Click On Download Button And Follow Steps To Download And Watch Movies Online For Free.
+
+[![](https://m.media-amazon.com/images/M/MV5BMjkwZTVlODQtODUzOS00NGJkLWFlNmItYTc2MDVhM2NhNzcwXkEyXkFqcGdeQXVyOTg4MzcyNzQ@._V1_SX300.jpg)](https://www.imdb.com/title/tt8055888/ "Mard Ko Dard Nahin Hota")
+
+Mard Ko Dard Nahin Hota (2018)
+
+7.4**Rating:** 7.4 / 10 from 5,888 users**Metascore:** N/A
+
+It is a story of a young boy Surya who has a rare condition of Congenital Insensitivity to pain meaning he can not feel pain, and he sets out to learn martial arts and hunt down muggers.
+
+### Download Mard Ko Dard Nahin Hota 2018 1080, 720p  – Full Hindi Movie
+
+### Movie Info:
+
+- **Full Name:** Mard Ko Dard Nahin Hota
+- **Language:** Hindi
+- **Release Year:** 2018
+- **Size:**  1.3GB & 3.8GB
+- **Quality:** 720p & 1080p
+- **Format:** Mkv
+- **Director:** Vasan Bala
+- **Writers:** Vasan Bala (dialogue), Santanu Ghatak (Lyricist)
+- **Stars:** Abhimanyu Dasani, Radhika Madan, Mahesh Manjrekar
+
+## Storyline:
+
+Surya is born with a strange condition under tragic circumstances. He is diagnosed with a rare medical disorder called Congenital insensitivity to pain and is tended to by the odd-couple combination of his father and his mischievous grandfather Ajoba. School life is difficult for a boy who doesn’t get hurt and is picked on by bullies and, yet, Surya finds an unlikely ally in his neighbor, Supri. At home, Surya learns to tend to his own wounds and binges on a whole host of martial arts films on VHS tapes thanks to his grandfather’s unique tutelage. The one tape that mesmerizes young Surya is 100-man karate kumite fought by a mysterious one-legged man called Karate Mani.
+
+## ScreenShots:
+
+![Download Mard Ko Dard Nahin Hota (2018) Hindi Movie Bluray](https://i.imgur.com/QV54n01.jpg)
+
+### Download Mard Ko Dard Nahin Hota (2018) Hindi Movie 720p \[1.3GB\]
+
+[Download Links](https://1moviesflix.com?a270777880=N2RCOHhreVRjYTdlbS9DQUs0UlEyc1pROXNJM3FSUDdZMHdJTHJwYlVUcWs4Rm5IK2lBaElZZit4cVVVbk5tSGR6YVNVbEl3NFo1MTdNQ3NNK2xiQjRNYk52a3o0NitCWnFnbFlBWHVYdHc9)
+
+### Download Mard Ko Dard Nahin Hota (2018) Hindi Movie 1080p \[3.8GB\] 
+
+[Download Links](https://1moviesflix.com?a270777880=N2RCOHhreVRjYTdlbS9DQUs0UlEyc1pROXNJM3FSUDdZMHdJTHJwYlVUcWs4Rm5IK2lBaElZZit4cVVVbk5tSHFJZTNhYVIxWmhKTVc0OVd1WDV0NU1SZUVPNGdDblg4Ym9TUlQxRHFtTkU9)
+
+* * *
+
+* * *
+
+.button { color: white; padding: 8px 6px; text-align: center; text-decoration: none; display: inline-block; font-size: 14px; margin: 2px 1px; -webkit-transition-duration: 0.4s; /\* Safari \*/ transition-duration: 0.4s; cursor: pointer; } .button5 { background-color: #555555; color: white; border: 1px solid #e7e7e7; border-radius: 4px; } .button5:hover { background-color: #e7e7e7; border: 2px solid #555555; color: black; } [Join Our Telegram](http://gdrivepro.xyz/join.php) [Hollywood](https://moviesverse.com/) [AnimeFlix](https://animeflix.in/) [Download PC Games](https://gamesflix.net/)  
+
+* * *
+
+* * *
+
+  
+
+Please Do Not Use VPN for Downloading Movies From Our Site.
+
+Click On The Above **Download Button** to Download File.
+
+If You Find Any Broken Link Then **Report** To Us.
+
+**Comment** Your Queries And Requests Below In The Comment Box.
+
+* * *

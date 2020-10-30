@@ -1,0 +1,22 @@
+---
+title: "Devathai Tamil Movie Download"
+date: "2020-03-25"
+---
+
+![Image result for Devathai 1997 tamil Movie image](http://www.tamilstar.com/profile/uploads/movie/flm6487devathai.jpg)
+
+**_Devathai Sample Part.mp4_**
+
+**_Size: 2.21mb_**
+
+**_[Download Server 1](http://p1.wetransfer.vip/files/Tamil{6f622526c29ee360cda5b2e87a916054ceacd5b4cb5e41dd1b031440e2d63f02}20Movies/Tamil{6f622526c29ee360cda5b2e87a916054ceacd5b4cb5e41dd1b031440e2d63f02}20Recent{6f622526c29ee360cda5b2e87a916054ceacd5b4cb5e41dd1b031440e2d63f02}20Movies/Devathai{6f622526c29ee360cda5b2e87a916054ceacd5b4cb5e41dd1b031440e2d63f02}20(1997)/Devathai/Devathai{6f622526c29ee360cda5b2e87a916054ceacd5b4cb5e41dd1b031440e2d63f02}20(1997){6f622526c29ee360cda5b2e87a916054ceacd5b4cb5e41dd1b031440e2d63f02}20Sample{6f622526c29ee360cda5b2e87a916054ceacd5b4cb5e41dd1b031440e2d63f02}20(640x360).mp4)_**
+
+**_[Download Server 2](http://p1.wetransfer.vip/files/Tamil{6f622526c29ee360cda5b2e87a916054ceacd5b4cb5e41dd1b031440e2d63f02}20Movies/Tamil{6f622526c29ee360cda5b2e87a916054ceacd5b4cb5e41dd1b031440e2d63f02}20Recent{6f622526c29ee360cda5b2e87a916054ceacd5b4cb5e41dd1b031440e2d63f02}20Movies/Devathai{6f622526c29ee360cda5b2e87a916054ceacd5b4cb5e41dd1b031440e2d63f02}20(1997)/Devathai/Devathai{6f622526c29ee360cda5b2e87a916054ceacd5b4cb5e41dd1b031440e2d63f02}20(1997){6f622526c29ee360cda5b2e87a916054ceacd5b4cb5e41dd1b031440e2d63f02}20Sample{6f622526c29ee360cda5b2e87a916054ceacd5b4cb5e41dd1b031440e2d63f02}20(640x360).mp4)_**
+
+**_Devathai Single Part.mp4_**
+
+**_Size: 498.8mb_**
+
+**_[Download Server 1](http://p1.wetransfer.vip/files/Tamil{6f622526c29ee360cda5b2e87a916054ceacd5b4cb5e41dd1b031440e2d63f02}20Movies/Tamil{6f622526c29ee360cda5b2e87a916054ceacd5b4cb5e41dd1b031440e2d63f02}20Recent{6f622526c29ee360cda5b2e87a916054ceacd5b4cb5e41dd1b031440e2d63f02}20Movies/Devathai{6f622526c29ee360cda5b2e87a916054ceacd5b4cb5e41dd1b031440e2d63f02}20(1997)/Devathai/Devathai{6f622526c29ee360cda5b2e87a916054ceacd5b4cb5e41dd1b031440e2d63f02}20(1997){6f622526c29ee360cda5b2e87a916054ceacd5b4cb5e41dd1b031440e2d63f02}20Single{6f622526c29ee360cda5b2e87a916054ceacd5b4cb5e41dd1b031440e2d63f02}20Part{6f622526c29ee360cda5b2e87a916054ceacd5b4cb5e41dd1b031440e2d63f02}20(640x360).mp4)_**
+
+**_[Download Server 2](http://p1.wetransfer.vip/files/Tamil{6f622526c29ee360cda5b2e87a916054ceacd5b4cb5e41dd1b031440e2d63f02}20Movies/Tamil{6f622526c29ee360cda5b2e87a916054ceacd5b4cb5e41dd1b031440e2d63f02}20Recent{6f622526c29ee360cda5b2e87a916054ceacd5b4cb5e41dd1b031440e2d63f02}20Movies/Devathai{6f622526c29ee360cda5b2e87a916054ceacd5b4cb5e41dd1b031440e2d63f02}20(1997)/Devathai/Devathai{6f622526c29ee360cda5b2e87a916054ceacd5b4cb5e41dd1b031440e2d63f02}20(1997){6f622526c29ee360cda5b2e87a916054ceacd5b4cb5e41dd1b031440e2d63f02}20Single{6f622526c29ee360cda5b2e87a916054ceacd5b4cb5e41dd1b031440e2d63f02}20Part{6f622526c29ee360cda5b2e87a916054ceacd5b4cb5e41dd1b031440e2d63f02}20(640x360).mp4)_**

@@ -18,7 +18,7 @@ layout: null
     {% endfor %}
     {% for post in site.posts %}
         <url>
-            <loc>{{ post.url | prepend: site.baseurl | prepend: site.url }}</loc>
+            <loc>{{ post.url | prepend: www.isaiminiweb.online | prepend: www.isaiminiweb.online }}</loc>
             <changefreq>weekly</changefreq>
             <priority>0.8</priority>
             <lastmod>{{ post.date | date: "%Y-%m-%d" }}</lastmod>

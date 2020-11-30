@@ -53,6 +53,15 @@ baseurl: ""
 # !! You don't need to change any of the configuration flags below !!
 #
 
+# Proxies
+proxy1: "https://in.isaiminiweb.online"
+proxy2: "http://tamilyogi.isaiminiweb.online"
+proxy3: "http://tamilmv.isaiminiweb.online"
+proxy4: "http://moviesda.isaiminiweb.online"
+proxy5: "http://movies.isaiminiweb.online"
+proxy5: "http://tamilgun.isaiminiweb.online"
+
+
 permalink: /:title/
 
 # The release of Jekyll Now that you're using
